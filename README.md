@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @T1mSkywalker
+- 👀 This is my term paper on your subject
+- 🌱 Pepe
+- ⚡ Fun fact: 1С shit
